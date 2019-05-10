@@ -1,2 +1,2 @@
-# summersoon
-Playing with github - maybe creating something interesting
+# Summer Soon
+Sweden is calm country with smiling people, but this weather, o my gash :) 
